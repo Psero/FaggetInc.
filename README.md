@@ -1,0 +1,2 @@
+# FaggetInc.
+For gays
